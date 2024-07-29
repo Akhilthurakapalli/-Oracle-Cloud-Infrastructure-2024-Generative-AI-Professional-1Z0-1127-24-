@@ -1,0 +1,1 @@
+# -Oracle-Cloud-Infrastructure-2024-Generative-AI-Professional-1Z0-1127-24-
